@@ -7,7 +7,7 @@ program in Tunghai University. I have a Bechlor degree,
 my major is Hospitality Management and Master's 
 deegree in Fermentation and Winemaking 
 technologies. In a spare time i used to do sports, 
-photography and design. 
+photography and web design. 
 
 # Experience 
 
