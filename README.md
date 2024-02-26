@@ -35,7 +35,7 @@ Equipement operation and maintenance
 
 # Skills
 
-Orginised 
+Organised    
 
 Ability to work with Hospitality software 
 PosterPos
