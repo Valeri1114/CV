@@ -2,12 +2,15 @@
 
 # Biography
 
-I'm 27 years old. I am a student of GMBA
+I'm 27 years old. Currently i am a student of GMBA
 program in Tunghai University. I have a Bachelor degree, 
 my major is Hospitality Management and Master
 deegree in Fermentation and Winemaking 
 technologies. In a spare time i used to do sports, 
-photography and web design. 
+photography and web design. I am opend to new knowledges, 
+insterested in languages, originaly i am bilingual, have skills in English,
+Dutch, Spanish, Ukrainian and Russian.
+
 
 # Experience 
 
