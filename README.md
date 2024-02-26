@@ -37,7 +37,7 @@ Equipement operation and maintenance
 
 Orginised 
 
-Ability to workd with Hospitality software 
+Ability to work with Hospitality software 
 PosterPos
 
 Creating of stuff shift schedule 
