@@ -25,6 +25,7 @@ Control of hygiene standrats
 
 •Food purchasing 
 •Budget management 
-•Creating of stuff shift schedule
+•Creating of stuff 
+shift schedule
 •Menu planing 
 •Hygeine standartisation 
