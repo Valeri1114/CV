@@ -23,9 +23,8 @@ Control of hygiene standrats
 
 # Skills
 
-•Food purchasing 
-•Budget management 
-•Creating of stuff 
-shift schedule
-•Menu planing 
-•Hygeine standartisation 
+## Food purchasing
+## Budget management 
+## Creating of stuff shift schedule
+## Menu planing 
+## Hygeine standartisation 
