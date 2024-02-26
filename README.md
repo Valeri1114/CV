@@ -9,7 +9,7 @@ my major is Hospitality Managemen and Master's
 deegree in Fermentation and winemaking 
 technologies. 
 
-# Expierence 
+# Experience 
 
 # •2017-2018 Barista 
 Preparing coffee drinks, bar products accounting
