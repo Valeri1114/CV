@@ -12,14 +12,21 @@ technologies.
 # Experience 
 
 # •2017-2018 Barista 
-Preparing coffee drinks, bar products accounting
+Preparing coffee drinks 
+
+Bar products accounting
 # •2018-2019 Hotel receptionist
-Manage front desk operations,guest service
+Manage front desk operations
+
+Guest service
+
 Manage customer complainings
 # •2020-2022 Restaurant manager
-#Hired, trained, and coached stuff members
-#Managed products providings, 
-#Control of hygiene standrats 
+Hired, trained, and coached stuff members
+
+Managed products providing
+
+Control of hygiene standrats 
 
 # Skills
 
