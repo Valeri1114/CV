@@ -6,7 +6,8 @@ I'm 27 years old. I am a student of GMBA
 program in Tunghai University. I have a Bechlor degree, 
 my major is Hospitality Management and Master's 
 deegree in Fermentation and Winemaking 
-technologies. 
+technologies. In a spare time i used to do sports, 
+photography and design. 
 
 # Experience 
 
