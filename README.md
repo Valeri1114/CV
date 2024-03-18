@@ -1,8 +1,8 @@
 # Valeriia Pasichna 
 
-# Biography
+# Biography 
 
-I'm 27 years old. Currently i am a student of GMBA
+I'm 27 years old. Currently I am a student of GMBA
 program in Tunghai University. I have a Bachelor degree, 
 my major is Hospitality Management and Master
 deegree in Fermentation and Winemaking 
