@@ -17,7 +17,7 @@ Dutch, Spanish, Ukrainian and Russian.
 # •2017-2018 Barista 
 - Preparing coffee drinks 
 
-Bar products accounting
+- Bar products accounting
 # •2018-2019 Hotel receptionist
 - Manage front desk operations
 
