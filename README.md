@@ -15,53 +15,53 @@ Dutch, Spanish, Ukrainian and Russian.
 # Experience 
 
 # •2017-2018 Barista 
-Preparing coffee drinks 
+- Preparing coffee drinks 
 
 Bar products accounting
 # •2018-2019 Hotel receptionist
-Manage front desk operations
+- Manage front desk operations
 
-Guest service
+- Guest service
 
-Manage customer complainings
+- Manage customer complainings
 
-Hotel departement coordination 
+- Hotel departement coordination 
 
 # •2020-2022 Restaurant manager
-Hired, trained, and coached stuff members
+- Hired, trained, and coached stuff members
 
-Managed products providing
+- Managed products providing
 
-Control of hygiene standrats 
+- Control of hygiene standrats 
 
-Equipement operation and maintenance 
+- Equipement operation and maintenance 
 
 # Skills
 
-Organised    
+- Organised    
 
-Ability to work with Hospitality software 
+- Ability to work with Hospitality software 
 PosterPos
 
-Creating of stuff shift schedule 
+- Creating of stuff shift schedule 
 
-Knowledges on sertification and 
+- Knowledges on sertification and 
 standsrtisation in hospitality industry 
 
-Hygeine standartisation 
+- Hygeine standartisation 
 
-Multilingual person 
+- Multilingual person 
 
 # Courses 
 
-ProResataurant forum, Ukraine, Odesa 2020
+- ProResataurant forum, Ukraine, Odesa 2020
 
-Hazard Analysis and Critical Control Points 
+- Hazard Analysis and Critical Control Points 
 practical course, Ukraine, Kherson 2021 
 
-Proservice training, Ukraine, Kherson 2018
+- Proservice training, Ukraine, Kherson 2018
 
-Accounting courses, Ukraine, Kherson 2021
+- Accounting courses, Ukraine, Kherson 2021
 
 
 
